@@ -1,0 +1,234 @@
+---
+layout: post
+date: 2022-09-03 18:35:03
+title: "2022 Visit #3: Fran's Solo Visit"
+categories: '2022'
+image: 'assets/images/305308388_10230071413555077_5624180031561668620_n_10230071413875085.jpg'
+---
+
+Fair visit #3, Fran's traditional solo visit. (Tagging Katie anyway, but it was just me this time!) This is the trip when I can linger at my own pace, check out all the random corners of the Fair, eat the stuff that only I am interested in eating, and just be in my happy place for a few hours!
+
+On Friday morning, I got up bright and early and headed to the Fair for my annual solo visit. I definitely beat the crowds!
+
+[![image](/assets/images/305308388_10230071413555077_5624180031561668620_n_10230071413875085.jpg)](/assets/images/305308388_10230071413555077_5624180031561668620_n_10230071413875085.jpg)
+
+Next I got on line for Hamline Church Dining Hall, because this year they are serving Al's pancakes (Al's is a locally famous diner near the University). Lots of people had this same idea.
+
+[![image](/assets/images/305116432_10230071414755107_2816259586629456115_n_10230071414995113.jpg)](/assets/images/305116432_10230071414755107_2816259586629456115_n_10230071414995113.jpg)
+
+The line moved pretty fast and once inside you can see one of the last vestiges of the once-common church dining halls at the Fair. Truly church basement style dining!
+
+[![image](/assets/images/305089113_10230071413835084_1889291176988572222_n_10230071414155092.jpg)](/assets/images/305089113_10230071413835084_1889291176988572222_n_10230071414155092.jpg)
+
+The blueberry pancakes were excellent. Lots of blueberries in there.  I'm not really even a pancake guy but I liked these a lot. 3.5/4.
+
+[![image](/assets/images/304965401_10230071413715081_7243511861104938365_n_10230071413955087.jpg)](/assets/images/304965401_10230071413715081_7243511861104938365_n_10230071413955087.jpg)
+
+Now, I know what you are probably thinking - why would you waste time, money and stomach room at the Fair to eat something you can get any time of the year? Well friends, this is Al's Diner... like, all of Al's Diner. They have14 seats along the counter, and if you need to wait for a seat, you stand two feet behind them and wait. So getting them at the Fair isn't a half bad way to get some Al's pancakes!
+
+[![image](/assets/images/305400421_10230071466396398_233820595717756204_n_10230071466436399.jpg)](/assets/images/305400421_10230071466396398_233820595717756204_n_10230071466436399.jpg)
+
+After breakfast I wandered up to the North End where I found some good shopping for a tee shirt and some other goodies, and then I headed into this year's special exhibit, called SURVIVAL: The Exhibition. It's a museum-quality exhibit on, well, survival. It was full of handy knowledge, like what to do if you encounter a bear...
+
+[![image](/assets/images/305084487_10230071414395098_5935458079701114158_n_10230071414795108.jpg)](/assets/images/305084487_10230071414395098_5935458079701114158_n_10230071414795108.jpg)
+
+...how to find north if you don't have a compass using the shadow stick method (sorry, the lighting was terrible in this section for photos)...
+
+[![image](/assets/images/305128132_10230071412995063_2122938656148098583_n_10230071413035064.jpg)](/assets/images/305128132_10230071412995063_2122938656148098583_n_10230071413035064.jpg)
+
+...and how to prepare a family emergency plan. I thought it was a pretty neat idea for an exhibit, especially in our very outdoors-y state.
+
+[![image](/assets/images/305263317_10230071416595153_8063520253021471747_n_10230071416675155.jpg)](/assets/images/305263317_10230071416595153_8063520253021471747_n_10230071416675155.jpg)
+
+Next up was the Eco Experience building that I look forward to each year.
+
+[![image](/assets/images/305121778_10230071417755182_8309297667924381389_n_10230071417995188.jpg)](/assets/images/305121778_10230071417755182_8309297667924381389_n_10230071417995188.jpg)
+
+I mean, where else are you going to learn about how planting a cover crop will help dissolve your undies faster??
+
+[![image](/assets/images/305297745_10230071417035164_7831973325256515761_n_10230071417195168.jpg)](/assets/images/305297745_10230071417035164_7831973325256515761_n_10230071417195168.jpg)
+
+Metro area peeps, if you need to plant some trees in your yard, here are ones that are well-suited for the changing climate.
+
+[![image](/assets/images/304911244_10230071417155167_3892051002129699642_n_10230071417275170.jpg)](/assets/images/304911244_10230071417155167_3892051002129699642_n_10230071417275170.jpg)
+
+20 foot tall moose made out of cardboard? Yeah they've got that.
+
+[![image](/assets/images/305099312_10230071414955112_5848023843572186866_n_10230071415155117.jpg)](/assets/images/305099312_10230071414955112_5848023843572186866_n_10230071415155117.jpg)
+
+I always check out the e-bike display. E-bikes are getting so mainstream I wonder if this will even be necessary in a few years.
+
+[![image](/assets/images/305229317_10230071414115091_8321224291734027326_n_10230071414595103.jpg)](/assets/images/305229317_10230071414115091_8321224291734027326_n_10230071414595103.jpg)
+
+Next up, the Fine Arts building. Right inside the front door, they always display the original artwork that was used for the official state fair poster art. Here's this year's poster!
+
+[![image](/assets/images/305287575_10230071418835209_6964452190475172683_n_10230071418875210.jpg)](/assets/images/305287575_10230071418835209_6964452190475172683_n_10230071418875210.jpg)
+
+Here's a sampling of some of the 300+ pieces of art on display in the gallery.
+
+[![image](/assets/images/305201831_10230071419075215_91833397723367640_n_10230071419355222.jpg)](/assets/images/305201831_10230071419075215_91833397723367640_n_10230071419355222.jpg)
+
+This was an amazing painting of a street scene in downtown Mpls. It looks so realistic!
+
+[![image](/assets/images/305259584_10230071417915186_3042379833475078624_n_10230071418195193.jpg)](/assets/images/305259584_10230071417915186_3042379833475078624_n_10230071418195193.jpg)
+
+Now, this is vintage State Fair. I love the passion for a completely random subject!
+
+[![image](/assets/images/305022399_10230071419235219_1626516271619993001_n_10230071419395223.jpg)](/assets/images/305022399_10230071419235219_1626516271619993001_n_10230071419395223.jpg)
+
+A cool leaf.
+
+[![image](/assets/images/305198330_10230071420995263_6122174926125271235_n_10230071421035264.jpg)](/assets/images/305198330_10230071420995263_6122174926125271235_n_10230071421035264.jpg)
+
+I wish this picture had a better sense of scale. This is like a HUGE artistic version of a shag carpet. It made me smile!
+
+[![image](/assets/images/305213521_10230071421435274_7249038808957165570_n_10230071421595278.jpg)](/assets/images/305213521_10230071421435274_7249038808957165570_n_10230071421595278.jpg)
+
+Done in the fine art gallery, I headed outside. I always try to appreciate the Fair gardens, knowing how much work goes into them year-round.
+
+[![image](/assets/images/305020873_10230071422355297_8346542882367612509_n_10230071422395298.jpg)](/assets/images/305020873_10230071422355297_8346542882367612509_n_10230071422395298.jpg)
+
+Coming out of Fine Arts put me pretty close to Rick's Pizza, which has the extremely popular new pickle pizza. This is the shortest the line has been so far, so I hopped in.
+
+[![image](/assets/images/305192055_10230071423595328_841668906118929059_n_10230071423875335.jpg)](/assets/images/305192055_10230071423595328_841668906118929059_n_10230071423875335.jpg)
+
+Ten minutes later, pickle pizza in hand. Here's what I'll say about the pizza - it tasted better than it looks in this picture, but it's not worth the buzz it's getting. I was expecting it to be horrendous, but the base pizza was solid, the crust was nicely baked and the cheese was good. Here's the strange thing - this would be a better pickle pizza if they removed the pickles. The pizza already has dill ranch as the sauce and dill seasoning sprinkled on it, both of which were pretty good. The pickles themselves were cheap and texturally bad. After I figured that out, I started eating around the pickles and it was actually decent. Put it all together, this gets a 2.5/4.
+
+[![image](/assets/images/304955944_10230071423395323_5451378954920771861_n_10230071423715331.jpg)](/assets/images/304955944_10230071423395323_5451378954920771861_n_10230071423715331.jpg)
+
+Ok, time for the Education Building, where I love looking at the school kid art section, especially the elementary school entries. Here's one from 5th grade!
+
+[![image](/assets/images/305217428_10230071418155192_8027791710981055897_n_10230071418355197.jpg)](/assets/images/305217428_10230071418155192_8027791710981055897_n_10230071418355197.jpg)
+
+3rd grade!
+
+[![image](/assets/images/305223366_10230071424475350_3313696519270139707_n_10230071424555352.jpg)](/assets/images/305223366_10230071424475350_3313696519270139707_n_10230071424555352.jpg)
+
+2nd grade!!
+
+[![image](/assets/images/305259738_10230071425235369_1121063070351496218_n_10230071425355372.jpg)](/assets/images/305259738_10230071425235369_1121063070351496218_n_10230071425355372.jpg)
+
+This 11th grader's work was also amazing. That's a drawing!
+
+[![image](/assets/images/305214549_10230071425115366_2446119077574685990_n_10230071425275370.jpg)](/assets/images/305214549_10230071425115366_2446119077574685990_n_10230071425275370.jpg)
+
+I popped into the Food Building to try another new food that's getting good reviews, the Soul Bowl Soulcicle. This is "fried chicken on-a-stick topped with candied yam sauce, cornbread crumble, mac-and-cheese seasoned cheddar cheese, hot sauce and green onions." Reading that description I was sure this was an easy winner. It wasn't. :-( Pretty much everything was wrong about it. Soggy fried chicken, and I wouldn't have been able to tell you this had any sort of cheese flavor. The cornbread crumbles were undetectable. The hot sauce wasn't hot. A total miss, which makes me sad because I like Soul Bowl. It gets a little bit of credit for creativity and if they can get this dialed in, I think it could be amazing. 1.5/4.
+
+[![image](/assets/images/305210772_10230071425995388_2637102824452846224_n_10230071426035389.jpg)](/assets/images/305210772_10230071425995388_2637102824452846224_n_10230071426035389.jpg)
+
+While I was roaming the Fairgrounds, I was making all of the stops of the History Walking Tour. I've done it once before, but they have several new stops. Each stop has a sign with some historical info and a hole punch to mark it off on your list. If you do at least 8, you can get a small prize at the end.
+
+[![image](/assets/images/305231726_10230071426435399_2901458013089020520_n_10230071426475400.jpg)](/assets/images/305231726_10230071426435399_2901458013089020520_n_10230071426475400.jpg)
+
+Next up was the Ag Building. There was a huge line for the crop art (art made from seeds), which is so Minnesotan - everyone waiting patiently in single file to get near the crop art. Well, I'm not Minnesotan and I know if you go in the other door you can simply look over the shoulders of the people shuffling through the line. :-) I'm on a mission, I ain't got that kinda time! Anyhow, here's one that only Minnesotans will recognize the humor in, due to recent state political events.
+
+[![image](/assets/images/304952056_10230071413275070_8458570377986087982_n_10230071413315071.jpg)](/assets/images/304952056_10230071413275070_8458570377986087982_n_10230071413315071.jpg)
+
+Mario!
+
+[![image](/assets/images/305197801_10230071426715406_5288640111232648514_n_10230071426875410.jpg)](/assets/images/305197801_10230071426715406_5288640111232648514_n_10230071426875410.jpg)
+
+Loved this riff on Minneapolis' famous cherry on a spoon sculpture.
+
+[![image](/assets/images/305287574_10230071426835409_8775538420131293185_n_10230071426915411.jpg)](/assets/images/305287574_10230071426835409_8775538420131293185_n_10230071426915411.jpg)
+
+I have no idea what this means, but I know my wife and our psychologist friends will appreciate this.
+
+[![image](/assets/images/305274565_10230071415875135_5103750805835975045_n_10230071415955137.jpg)](/assets/images/305274565_10230071415875135_5103750805835975045_n_10230071415955137.jpg)
+
+This is made out of seeds, people!
+
+[![image](/assets/images/305415239_10230071427475425_1484284283961483755_n_10230071427515426.jpg)](/assets/images/305415239_10230071427475425_1484284283961483755_n_10230071427515426.jpg)
+
+You can always count on the crop art for biting political commentary.
+
+[![image](/assets/images/305082940_10230071416195143_7606229625685375276_n_10230071416235144.jpg)](/assets/images/305082940_10230071416195143_7606229625685375276_n_10230071416235144.jpg)
+
+Tribute to Lieutenant Uhura.
+
+[![image](/assets/images/305231807_10230071427675430_7757057018229220763_n_10230071427755432.jpg)](/assets/images/305231807_10230071427675430_7757057018229220763_n_10230071427755432.jpg)
+
+Here's just a random shout out to the spring wheat winner. You always hear about winter wheat around here. Never spring wheat. Let's give Scott and spring wheat some love.
+
+[![image](/assets/images/305314261_10230071428115441_994149812407689019_n_10230071428155442.jpg)](/assets/images/305314261_10230071428115441_994149812407689019_n_10230071428155442.jpg)
+
+The scarecrow contest with the seed bag background is always a fun stop.
+
+[![image](/assets/images/305265807_10230071428595453_5035145857185837850_n_10230071428835459.jpg)](/assets/images/305265807_10230071428595453_5035145857185837850_n_10230071428835459.jpg)
+
+Next it was to the prize vegetables room. The largest pumpkin contest was a runaway this year, with first place at 1,600 lbs., a full 600 lbs. out ahead of the rest of the field.
+
+[![image](/assets/images/287225344_10230071428795458_2381142361394080670_n_10230071429035464.jpg)](/assets/images/287225344_10230071428795458_2381142361394080670_n_10230071429035464.jpg)
+
+Some good-looking tomatoes.
+
+[![image](/assets/images/304974961_10230071428995463_1262449162052693338_n_10230071429195468.jpg)](/assets/images/304974961_10230071428995463_1262449162052693338_n_10230071429195468.jpg)
+
+The best tomatillos I've ever seen!
+
+[![image](/assets/images/303588739_10230071429635479_223145851967345902_n_10230071429715481.jpg)](/assets/images/303588739_10230071429635479_223145851967345902_n_10230071429715481.jpg)
+
+Cucumbers?? "Any Other Type" apparently includes those from alien worlds!
+
+[![image](/assets/images/305207519_10230071429875485_1428765123545727811_n_10230071430115491.jpg)](/assets/images/305207519_10230071429875485_1428765123545727811_n_10230071430115491.jpg)
+
+Beans anyone?
+
+[![image](/assets/images/305243290_10230071430275495_6936313357585968361_n_10230071430395498.jpg)](/assets/images/305243290_10230071430275495_6936313357585968361_n_10230071430395498.jpg)
+
+Pumpkin decorating contest. This would have gotten first place from this Sesame Street kid.
+
+[![image](/assets/images/305050965_10230071430675505_116384144999905551_n_10230071430715506.jpg)](/assets/images/305050965_10230071430675505_116384144999905551_n_10230071430715506.jpg)
+
+Despite hot, muggy weather the Fair was starting to fill up. Time for me to head towards the exits, but a few more stops needed to be made.
+
+[![image](/assets/images/304938204_10230071419915236_8052905427671447083_n_10230071419955237.jpg)](/assets/images/304938204_10230071419915236_8052905427671447083_n_10230071419955237.jpg)
+
+I like to stop by the DNR fish pond to see what the fish are up to, especially when the DNR staff are doing their presentation (hard to see, white/light shirt standing elevated on far side). I learned this year that the DNR has a special pond where these fish live the rest of the year, and that some of them have been coming to the Fair for more than 40 years! They don't release them after each Fair because of potential to spread diseases.
+
+[![image](/assets/images/305059708_10230071430995513_3938247028086072182_n_10230071431035514.jpg)](/assets/images/305059708_10230071430995513_3938247028086072182_n_10230071431035514.jpg)
+
+And, now, because it's Friday noon at the Fair, of course you buy two beers at once and pull up a great people-watching table. On the left is the Modist Tripple Orange Sour, which my co-worker had alerted me is like the best OJ you've ever had (and they're from Florida so I trusted this!) On the right is mini donut, because of course. I gotta say, it WAS exactly like drinking great OJ! I don't think I could do more than one of those because of the OJ-like acidity, but that's an impressive impression that beer is doing! 3.5/4. Mini donut beer needs no review, you all know how I feel about it.
+
+[![image](/assets/images/305248408_10230071420395248_6618602143673439254_n_10230071420435249.jpg)](/assets/images/305248408_10230071420395248_6618602143673439254_n_10230071420435249.jpg)
+
+I needed to get a couple of Walking Tour stamps over by the animals so I popped into the Coliseum. It happened to be one of my favorite events, the mini horse pleasure cart competition. It's so ridiculous it's great!
+
+[![image](/assets/images/304884235_10230071416475150_7883009367405889761_n_10230071416635154.jpg)](/assets/images/304884235_10230071416475150_7883009367405889761_n_10230071416635154.jpg)
+
+Then the next event started and I don't know what it was called, but the idea was to precisely control your horse through a pre-defined route involving lots of spins, backwards walking, and going around cones. Just in case you think this is a speed event, I can safely say top speed was probably 1/2 mile an hour. I think it was more about the rider-horse communication and relationship. I had no idea how to tell good from bad, but it was still interesting to watch.
+
+[![image](/assets/images/305116389_10230071420275245_1083058441824877722_n_10230071420515251.jpg)](/assets/images/305116389_10230071420275245_1083058441824877722_n_10230071420515251.jpg)
+
+I was hungry for lunch. This is the part where I remind everyone that on my solo trips I'm strict about not finishing items I don't love so I save room for others... like half of that pickle pizza and soulcicle were tossed. I don't love tossing food, and expensive food at that, but it's for "journalism"! Anyhow, I wanted a safe bet for lunch, and there's not many safer bets than Turkey to Go sandwiches at the Fair! I want half-BBQ-sauce this year. It was good with the sauce, but this sandwich never needs it. Try it plain first to appreciate the turkey cooking artistry. 4/4.
+
+[![image](/assets/images/305298549_10230071431195518_4102387481771338616_n_10230071431315521.jpg)](/assets/images/305298549_10230071431195518_4102387481771338616_n_10230071431315521.jpg)
+
+I climbed the DNR fire tower for some bird's eye views of the grounds. Towards the grandstand.
+
+[![image](/assets/images/305303365_10230071422555302_5721652820307625127_n_10230071422595303.jpg)](/assets/images/305303365_10230071422555302_5721652820307625127_n_10230071422595303.jpg)
+
+Towards the Coliseum.
+
+[![image](/assets/images/304903579_10230071422915311_5861474632267440147_n_10230071423155317.jpg)](/assets/images/304903579_10230071422915311_5861474632267440147_n_10230071423155317.jpg)
+
+Towards the Giant Slide. I really like this picture because I appreciate how much tree cover they've preserved, which is hard to tell at ground level.
+
+[![image](/assets/images/305026524_10230071425515376_789880111438135496_n_10230071425715381.jpg)](/assets/images/305026524_10230071425515376_789880111438135496_n_10230071425715381.jpg)
+
+It was getting very hot, so I needed a cold treat. I went simple with Grandstand Frozen Custard, coffee flavor. This is nothing fancy, but I like it all the same. 3/4.
+
+[![image](/assets/images/304913411_10230071431595528_5072636055875737119_n_10230071431635529.jpg)](/assets/images/304913411_10230071431595528_5072636055875737119_n_10230071431635529.jpg)
+
+And with that, my Walking Tour and my day at the Fair was complete. I overachieved, getting all 12 stamps.
+
+[![image](/assets/images/305027585_10230071424795358_5572054590313489493_n_10230071424875360.jpg)](/assets/images/305027585_10230071424795358_5572054590313489493_n_10230071424875360.jpg)
+
+Finally, here's my merch haul. Some folks' favorite thing at the Fair is free stuff. I haven't been too into that scene, but maybe one day I'll do a "see how much random free stuff you can get" trip. Anyhow, today I came home with Free: Fishes of Minnesota poster, Minnesota Wild pennant, Tree Owner's Manual, 2023 Minnesota Cooks calendar, and my blue ribbon for completing the walking tour. I also bought a zip-up hoodie, a tee shirt, and some vinyl stickers. That's it for my solo trip! We've got one more family trip coming up to close out the Fair this year.
+
+[![image](/assets/images/305444665_10230073787134415_4195783100102113982_n_10230073787174416.jpg)](/assets/images/305444665_10230073787134415_4195783100102113982_n_10230073787174416.jpg)
+
+Whenever I am at the Fair in the morning I make a beeline to the Farmers Union and my favorite Fair coffee, the nitro cold press, which I like to enjoy on their back patio as a calm start to the day. I think this is my first-ever video food review, but I wanted to show off the mesmerizing nitro action! The coffee gets a 4/4 from me. On the side is the mini BLT hand pie, which hasn't gotten the best reviews, but I was intrigued. I thought it was ok. It's definitely mini and could have used just a smidge more filling, but I enjoyed it. We'll go 3/4 here.
+
+[![image](/assets/images/303386127_407705551486843_2688013279291033246_n_616861929806974.mp4)](/assets/images/303386127_407705551486843_2688013279291033246_n_616861929806974.mp4)
+

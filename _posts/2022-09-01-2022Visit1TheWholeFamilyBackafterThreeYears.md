@@ -1,0 +1,80 @@
+---
+layout: post
+date: 2022-09-01 17:17:56
+title: "2022 Visit #1: The Whole Family Back after Three Years!!"
+categories: '2022'
+image: 'assets/images/304912863_10230060390239501_930485366803255055_n_10230060390639511.jpg'
+---
+
+Finally, after three years, the Fabrizio family was once again all together at the Minnesota State Fair! This was visit #1 for 2022, last Friday morning.
+
+Back together in our happy place! We got there bright and early at 8am to beat the rush.
+
+[![image](/assets/images/304912863_10230060390239501_930485366803255055_n_10230060390639511.jpg)](/assets/images/304912863_10230060390239501_930485366803255055_n_10230060390639511.jpg)
+
+There's nothing quit like the Fair, and we really missed being there as a family these past years. Only the Fair could inspire someone to make pickle sidewalk chalk art.
+
+[![image](/assets/images/304769666_10230060412800065_8290966404537930138_n_10230060412880067.jpg)](/assets/images/304769666_10230060412800065_8290966404537930138_n_10230060412880067.jpg)
+
+First stop was to Henry's little slice of heaven at the Fair, the Sheep Barn.
+
+[![image](/assets/images/303958098_10230060392919568_2986571321482713343_n_10230060393039571.jpg)](/assets/images/303958098_10230060392919568_2986571321482713343_n_10230060393039571.jpg)
+
+He picked up right where he left off, watching the sheep get their haircuts and make their funny noises. This is a farmer we've watched many times over the years!
+
+[![image](/assets/images/304838485_10230060392799565_2049462074385702986_n_10230060392959569.jpg)](/assets/images/304838485_10230060392799565_2049462074385702986_n_10230060392959569.jpg)
+
+A quick detour through the Horse Barn to say hello.
+
+[![image](/assets/images/304860646_10230060389399480_1771954350622815735_n_10230060389639486.jpg)](/assets/images/304860646_10230060389399480_1771954350622815735_n_10230060389639486.jpg)
+
+Time to eat! Henry saw the Island Noodles stand and wanted this for breakfast. Why not?! We've never tried it before. Nothing special, but he was thrilled with it and finished it all.
+
+[![image](/assets/images/304098276_10230060423360329_4762202371620109742_n_10230060423520333.jpg)](/assets/images/304098276_10230060423360329_4762202371620109742_n_10230060423520333.jpg)
+
+We opted for a classic for our first Fair food this year. Pancho Dog, Katie's preferred Fair corn dog.
+
+[![image](/assets/images/304780835_10230060423480332_4254548317875747075_n_10230060423600335.jpg)](/assets/images/304780835_10230060423480332_4254548317875747075_n_10230060423600335.jpg)
+
+Then we ventured over to the east side of the Fair, and on a whim tried out a new vendor, Pickle Barrel. THIS DID NOT PHOTOGRAPH WELL, but their steak tips dinner was actually, surprisingly, phenomenal! The steak was tender and well seasoned, the mashed potatoes were legit, the carmelized onions were yummy, but the star of this show was the mushrooms. Super good marinated mushrooms - I would seriously eat them on their own (and I think you can, they also sell the sides separately). This was a ton of food, good for sharing. Sleeper hit!
+
+[![image](/assets/images/304743913_10230060392279552_5511444608109006433_n_10230060392439556.jpg)](/assets/images/304743913_10230060392279552_5511444608109006433_n_10230060392439556.jpg)
+
+We listened to the Roe Family Singers while eating. They seem to be at the Fair every year on this stage!
+
+[![image](/assets/images/304569207_10230060388919468_3823456000309826899_n_10230060388959469.jpg)](/assets/images/304569207_10230060388919468_3823456000309826899_n_10230060388959469.jpg)
+
+One of the great joys of the Fair is random encounters with famous people. There we were sitting near the DNR building eating our steak dinner (for breakfast), when there was suddenly a hubbub behind us. We turned around and there was Governor Walz (white tee shirt in back) and Lieutenant Governor Flanagan (speaking).
+
+[![image](/assets/images/302747707_10230060391799540_7803274085695989340_n_10230060391959544.jpg)](/assets/images/302747707_10230060391799540_7803274085695989340_n_10230060391959544.jpg)
+
+They were there for the launch of the Minnesota Children's Outdoor Bill of Rights, a new initiative designed to enhance access to outdoor recreation.
+
+[![image](/assets/images/304465284_10230060443240826_4661086340748790281_n_10230060443280827.jpg)](/assets/images/304465284_10230060443240826_4661086340748790281_n_10230060443280827.jpg)
+
+Smokey was there too and Henry had a hug for him.
+
+[![image](/assets/images/304995282_10230060390159499_7073513203025096174_n_10230060390599510.jpg)](/assets/images/304995282_10230060390159499_7073513203025096174_n_10230060390599510.jpg)
+
+After that we hit the Midway (Henry graduated up from the Kidway!). Mom and Henry dared to enter the haunted house....
+
+[![image](/assets/images/304549867_10230060389879492_5675754530603273884_n_10230060390199500.jpg)](/assets/images/304549867_10230060389879492_5675754530603273884_n_10230060390199500.jpg)
+
+....while dad was terrified on the crazy coaster that Henry loved!
+
+[![image](/assets/images/304771648_10230060391679537_3428226887905369015_n_10230060391839541.jpg)](/assets/images/304771648_10230060391679537_3428226887905369015_n_10230060391839541.jpg)
+
+Henry also got reaquainted with another of his favorites, the Turbo Jump.
+
+[![image](/assets/images/304787701_10230060390479507_972789962849373762_n_10230060390839516.jpg)](/assets/images/304787701_10230060390479507_972789962849373762_n_10230060390839516.jpg)
+
+We wrapped up the trip with a quick snack break. I tried a smoked peach beer from RC's BBQ. Decent.
+
+[![image](/assets/images/304905682_10230060389199475_3106642601778740024_n_10230060389479482.jpg)](/assets/images/304905682_10230060389199475_3106642601778740024_n_10230060389479482.jpg)
+
+We also got a cone of Sweet Martha's. Definitely still not our favorite chocolate chip cookie, but still fun to eat them warm. (No cookies made it out of the Fair, they were gone shortly after this photo!)
+
+That's a wrap for our quick visit #1! More to come!
+
+[![image](/assets/images/304148759_10230060389439481_8281004138780373388_n_10230060389559484.jpg)](/assets/images/304148759_10230060389439481_8281004138780373388_n_10230060389559484.jpg)
+

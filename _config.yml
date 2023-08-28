@@ -1,0 +1,46 @@
+name: 'FAIRly Obsessed: A MN State Fair Love Affair'
+description: 'A personal blog about our family adventures at the Minnesota State Fair.'
+email: fran@fabriziofamily.com
+baseurl: ""
+
+include: ["_pages"]
+permalink: /:title/
+
+plugins:
+  - jekyll-remote-theme
+  - jekyll-seo-tag
+  - jekyll-paginate
+  - jekyll-feed
+  - jekyll-sitemap
+
+remote_theme: franfabrizio/mundana-theme-jekyll
+
+authors:
+    fran:
+      name:           Fran
+      avatar:         /assets/images/avatar1.jpg
+      bio:            "Hi, I'm Fran, the main author of this blog."
+      email:          fran@fabriziofamily.com
+
+# Defaults
+defaults:
+
+  # all posts
+  - scope:
+      path: "_posts"
+    values:
+      layout: post
+      author: fran
+      avatar: assets/images/avatar1.jpg
+      
+  # all pages
+  - scope:
+      path: "_pages"
+    values:
+      layout: page
+      
+# Syntax
+markdown: kramdown
+highlighter: rouge
+
+paginate: 10
