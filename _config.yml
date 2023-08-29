@@ -3,6 +3,7 @@ description: 'A personal blog about our family adventures at the Minnesota State
 email: fran@fabriziofamily.com
 baseurl: ""
 disqus: fairly-obsessed
+favicon: assets/images/favicon.ico
 
 include: ["_pages"]
 permalink: /:title/
