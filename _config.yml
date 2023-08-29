@@ -23,7 +23,7 @@ authors:
     fran:
       name:           Fran
       avatar:         assets/images/avatar1.jpg
-      bio:            "Hi, I'm Fran. My spirit animal is Mini Donut Beer."
+      bio:            "My spirit animal is Mini Donut Beer."
       email:          fran@fabriziofamily.com
       facebook:       https://www.facebook.com/fran.fabrizio
       # hack to avoid modifying the layout

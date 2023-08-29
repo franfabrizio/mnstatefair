@@ -1,7 +1,7 @@
 ---
 layout: post
 date: 2023-08-23 20:35:26
-title: "A Little (Big) Something Different!"
+title: "We're Camping the Fair!"
 categories: '2023'
 image: 'assets/images/camper.png'
 ---
