@@ -1,7 +1,7 @@
 ---
 layout: post
 date: 2016-08-28 16:26:22
-title: "Second-visit-to-the-Fair-is-in-the-books-This-one"
+title: "2016 State Fair Visit #2"
 categories: '2016'
 image: 'assets/images/14067493_10210830012212069_6197068807429376397_n_10210830012212069.jpg'
 ---

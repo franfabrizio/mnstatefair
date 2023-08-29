@@ -2,6 +2,7 @@ name: 'FAIRly Obsessed: A MN State Fair Love Affair'
 description: 'A personal blog about our family adventures at the Minnesota State Fair.'
 email: fran@fabriziofamily.com
 baseurl: ""
+disqus: fairly-obsessed
 
 include: ["_pages"]
 permalink: /:title/
@@ -15,12 +16,18 @@ plugins:
 
 remote_theme: franfabrizio/mundana-theme-jekyll
 
+feed:
+  disable_in_development: true
+
 authors:
     fran:
       name:           Fran
-      avatar:         /assets/images/avatar1.jpg
-      bio:            "Hi, I'm Fran, the main author of this blog."
+      avatar:         assets/images/avatar1.jpg
+      bio:            "Hi, I'm Fran. My spirit animal is Mini Donut Beer."
       email:          fran@fabriziofamily.com
+      facebook:       https://www.facebook.com/fran.fabrizio
+      # hack to avoid modifying the layout
+      twitter:        https://www.facebook.com/fran.fabrizio
 
 # Defaults
 defaults:

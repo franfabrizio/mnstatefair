@@ -1,7 +1,7 @@
 ---
 layout: post
 date: 2016-08-26 17:31:50
-title: "More-scenes-from-the-Fair-today"
+title: "2016 State Fair Scenes"
 categories: '2016'
 image: 'assets/images/14102587_10210809955150655_4322382204473049263_n_10210809955150655.jpg'
 ---

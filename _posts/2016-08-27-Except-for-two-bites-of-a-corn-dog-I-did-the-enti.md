@@ -1,7 +1,7 @@
 ---
 layout: post
 date: 2016-08-27 12:32:31
-title: "Except-for-two-bites-of-a-corn-dog-I-did-the-enti"
+title: "It's not all Fried!"
 categories: '2016'
 ---
 

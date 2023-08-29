@@ -5,5 +5,7 @@ title: "Bucket List Item"
 categories: '2016'
 ---
 
-I have a feeling this will be me someday. :-) http://www.startribune.com/minnesota-state-fair-campers-live-for-and-at-the-minnesota-state-fair/392097361/
+I have a feeling this will be me someday. :-)
+
+<http://www.startribune.com/minnesota-state-fair-campers-live-for-and-at-the-minnesota-state-fair/392097361/>
 
