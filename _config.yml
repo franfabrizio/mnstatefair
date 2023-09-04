@@ -27,8 +27,7 @@ authors:
       bio:            "My happy place is wherever I am while holding a Mini Donut Beer."
       email:          fran@fabriziofamily.com
       facebook:       https://www.facebook.com/fran.fabrizio
-      # hack to avoid modifying the layout
-      twitter:        https://www.facebook.com/fran.fabrizio
+      twitter:        https://twitter.com/FAIRlyobsessmn
 
 # Defaults
 defaults:
