@@ -13,7 +13,7 @@ Food Categories
 
 As is our tradition here at Fran's Fair Awards, the bad news comes first.
 
-Biggest Disappointment - 
+Biggest Disappointment - This is unfortunately an easy award to determine this year. I want to like it. Conceptually, it's fresh and stands out from the sea of Fair offerings. On paper, the list of components is a winner. Visually, it's a knockout. The amount of buzz it gets amps up the anticipation. But at first bite it was so, so disappointing. I really don't understand how freshly made marmalade with local berries, nut butter that they grind on site, and grilled cinnamon toast can be so lacking in taste. How is this missing the target?? Nevertheless, it is what it is, and what it is is a very bland sandwich not worth your Fair stomach real estate. Maybe they were somehow off the day I was there, but this is a repeat disappointment from a prior year. I believe in second chances, but not third chances when it comes to Fair food, so the biggest disappointment award goes to the Grilled Sota Sandwich at Jammie Sammies by Brim.
 
 Dishonorable mentions: 
 
