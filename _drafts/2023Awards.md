@@ -6,16 +6,21 @@ categories: '2023'
 tags: featured
 ---
 
-And now, without further ado (and because I really need to get to bed and go to work in the morning!), I present the 5th annual Fran's Fair Awards for 2019!
+IT'S BAAAAAACCCCCCKKKK! After a three-year hiatus (2020: no Fair; 2021: Pandemic-shortened Fair experience; 2022: I, uh, forgot to write one?) I am thrilled to present to you the 6th Annual-ish Fran's Fair Awards for 2023!!
 
 Food Categories
 -------------------
 
 As is our tradition here at Fran's Fair Awards, the bad news comes first.
 
-Biggest Disappointment - This was a year of relatively few disappointments. Does that mean it was a good year, or did I play it too safe? In any case, someone's got to win it. So, here goes: the "winner" of the Biggest Disappointment for 2019 is.... the Shrimp and Grit Fritters from Funky Grits. Now, I have long wondered why vendors keep trying to make shrimp happen at the Fair, but I thought ok, frying it is probably the safest way to go with shrimp at the Fair, and hey, new vendor, let's throw them some love. The early Fair buzz around these was massive, too. But they were a big letdown. Finding any shrimp in those fritters was a Where's Waldo? situation. Now, props for the $5 price tag, but even at $5 you can probably afford to put more shrimp in there. Maybe they'll put in a stronger sophomore effort, but I'm letting someone else find out, cause I'm skipping this one next year. 
+Biggest Disappointment - 
 
-Dishonorable mentions: The Oven Baked Brownie. We made a special effort this year to seek out classic Fair foods that tend to show up on a lot of "my favorite Fair foods" lists, and the brownie was one of those. I like brownies to have some substance to them (otherwise, you're just giving me a really flat cake, right?) These were straight-up cake-y. No bueno. And at first I was excited that the version with nuts was the same price as the non-nutted variety, but after seeing the few measly bits of walnut on ours, it was just sad. Nashville Hot Chicken-on-a-Stick. This dishonorable mention is as much about the hype as it is about the reality. I mean, people raved up and down about this one - probably heard more about this than any other item. But a heavy hand on the salt and a light hand on the heat added up to a lackluster item. In fact, this would have won Biggest Disappointment had it not been for that sauce-soaked slice of bread hiding underneath it all that salvaged this dish somewhat. Finally, and I feel a little bad giving this one out (but not so bad that I'm not gonna do it), the Mini Donut Latte. I mean, I KNEW this would in some way disappoint this coffee purist, but even still, I felt a little suckered into the exists-just-for-Instagram purchase that was the mini donut latte. The thing is they're covering up really good coffee with all that sugary nonsense. 
+Dishonorable mentions: 
+
+Alright, with the dirty work out of the way, it's time for the winners!
+
+
+
 
 Ok, enough depressing news. Let's hit the high notes!
 
