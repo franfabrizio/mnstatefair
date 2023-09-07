@@ -8,62 +8,188 @@ tags: featured
 
 IT'S BAAAAAACCCCCCKKKK! After a three-year hiatus (2020: no Fair; 2021: Pandemic-shortened Fair experience; 2022: I, uh, forgot to write one?) I am thrilled to present to you the 6th Annual-ish Fran's Fair Awards for 2023!!
 
-Food Categories
--------------------
+## Food Categories
 
 As is our tradition here at Fran's Fair Awards, the bad news comes first.
 
-Biggest Disappointment - This is unfortunately an easy award to determine this year. I want to like it. Conceptually, it's fresh and stands out from the sea of Fair offerings. On paper, the list of components is a winner. Visually, it's a knockout. The amount of buzz it gets amps up the anticipation. But at first bite it was so, so disappointing. There was just nothing there. Chris and I gave it a few bites to change our mind, but more than half of this was tossed. I really don't understand how freshly made marmalade with local berries, nut butter that they grind on site, and grilled cinnamon toast can be so lacking in taste. How is this missing the target?? Nevertheless, it is what it is, and what it is is a very bland sandwich not worth your Fair stomach real estate. This is a repeat letdown from a prior year, as well. I believe in second chances but not third chances when it comes to Fair food, so the award goes to the Grilled Sota Sandwich at Jammie Sammies by Brim.
+### Biggest Disappointment
 
-Dishonorable mentions: 
+This is unfortunately an easy award to determine this year. I wanted to like it. I've liked it in the past (Best Snack 2019.) Conceptually, it's fresh and stands out from the sea of Fair offerings. On paper, the list of components is a winner. Visually, it's a knockout. The amount of buzz it gets (including recipient of one of this year's vendor awards) amps up the anticipation!
 
-Alright, with the dirty work out of the way, it's time for the winners!
+But at first bite it was so, so disappointing. There was just nothing there. Chris and I gave it a few more bites to change our mind, but more than half of this was tossed. I really don't understand how freshly made marmalade with local berries, nut butter that they grind on site, and grilled cinnamon toast can be so lacking in taste. How is this missing the target?? Nevertheless, it was what it was, and it was a very bland sandwich not worth our Fair stomach real estate. Maybe they're just having an off-year, but it was such a negative experience that I unfortunately have to give this award to:
+
+ **_Grilled Sota Sandwich at Jammie Sammies by Brim_**.
+
+ Here's hoping it was a one-year anomaly and they'll get this straightened out and be back on their game next year.
+
+#### Dishonorable Mentions
+
+With the amount of food and drunk we consumed, there were of course a few more disappointments, including: 
+
+*   **O'Gara's Reuben Bites** - This was doomed the moment they handed it over with a packet of Kraft Thousand Island dressing. No place for that nonsense at the Fair.
+*   **Nordic Waffles Dill Pickle Lemonade** - Ok, credit them for taking a risk, but how did they taste this during development and think it was going to work??
+*   **Brim Lemonade** - Just weak.
+*   **Danielson & Daughters Onion Rings** - This one hurts, because I usually love these, but they were small-portioned, thin and greasy this year.
+
+Alright, with the unpleasantries out of the way, it's time for the winners!
+
+### Best Main Entree
+
+There was a lot to like for me in this category this year. I had two excellent hummus bowls (Al Tacos and Mi Lahme) from Baba's, Pickle Barrel continued to impress with their steak tip dinner (oh, those mushrooms!), and Peterson's Pork Chops produced a dandy of a chop on Visit #3 after a just-average offering in week 1. However, for me, there was one entree that stood out above the rest, both for its overall taste and for its performance relative to my expectations going in. This year's winner for best main entree is:
+
+**_RC'S BBQ Maui-Sota Sticky Ribs_**
+
+Ribs are hard to do even when you're not trying to prepare them at massive scale for hordes of Fairgoers. The fact that they started with really meaty ribs and cooked them to a  fall-off-the-bone tenderness, and then hit them with that deliciously balanced sticky glaze was really impressive. I regret not going back for more of these, there's never enough time! Hopefully they bring them back next year.
+
+### Best Snack 
+
+It's kinda hard to draw the line between snack and other categories at the Fair, so this may feel a bit arbitrary, but these are my awards and I get to say what's a snack, and for me this category encompasses everything from roasted corn to corn dogs, from mini donuts to cheese curds. As such, it might be the most competitive category there is!
+
+This year I'm giving the award to a new item, simple in concept but nicely put together and so refreshing on a long, hot Fair day. This year's winner is:
+
+**_Lemonade Sorbet from Quench'd_** 
+
+Again, simple item nicely done. It's VERY lemony, a nice antidote to all the weak lemonade. The addition of actual lemon zest is a nice touch. Serving it in a lemon rind was fun, though neutralized by then placing it all in a plastic cup. That probably allowed for more sorbet but would be nice if that could be avoided. I read online that it even had a fun temperature sensitive color changing spoon - I didn't notice!
+
+There were a lot of worthy contenders, so let me also shout out some honorable mentions here.
+
+* Cider Freeze - Even simpler than the sorbet, but similarly refreshing.
+* Grandstand Mini Donuts - Overlooked for years, these guys are churning out better mini donuts than Tom Thumb or Tiny Tim. Yeah, I said it!
+* Mouth Trap Cheese Curds - These are the same every single time, which I appreciate, especially when same = delicious!
+
+### Best Dessert
+
+This year's winner was not on my radar heading into the Fair but thankfully a co-worker called attention to it in time for us to check it out. Glad they did, because it was a delightful find! This year's winner for best dessert is:
+
+**_Apple Crisp Ice Cream at Granny's Apples & Lemonade_**
+
+This was a collaboration with boutique ice cream producer A to Z Creamery in Hopkins. Though the portion size was modest by Fair standards, the $8 was very well spent on this ice cream, which had a prominent and delicious apple flavor along with still-crisp topping pieces mixed throughout. Katie and I kept scraping the container for more of this! The experience has definitely put both Granny's and (A to Z Creamery)[https://www.atozcreamery.com/] on my radar for future Fairs and beyond, but good luck getting any of their ice cream outside the Fair because they do a weekly small batch release that always sells out, sometimes within one minute!
+
+### Best Breakfast
+
+I didn't stray beyond the "Breakfast Nexus" of French Meadow - Hamline Church Dining Hall - Farmer's Union this year for morning foods, so this will be a small field in contention for the best breakfast award. It's also an interesting field in that there's no reason any of these foods have to be considered breakfast-specific, especially under anything-goes Fair food rules. Nevertheless, if I ate it for breakfast, I'm considering it in this category.
+
+The group of entries had a couple of near misses. First, the Holey Hamloaf on Egg-in-the-Hole bread at Hamline. While the item did perform well during its second chance once they had worked out the service issues, it's not something I think I would go back to for breakfast. One, it's huge, so it's hard to commit to that as your first food item of a long Fair day, but more to the point, it just didn't stand out enough for me. It was just... fine. 
+
+Next up would be the Everything Cream Cheese Ba-Sant at French Meadow. I LOVE anything Everything, so I was super excited for this, and the Everything part of this certainly delivered! Where it just missed was the cream cheese - it needed more, and it needed to be more evenly distributed through the pastry. 
+
+That leads us to our winner, from a place with a long tradition of winning! This year's best breakfast award goes to:
+
+**_The Fried Green Tomato BLT Sandwich at Farmer's Union_** 
+
+Farmer's Union does bacon better than anywhere else at the Fair, so right away I know this would be a strong competitor. Couple that with those perfectly breaded, crunchy cornmeal-coated fried green tomatoes on a top-notch soft bun and some mayo mustard sauce and you've got a clear winner! Every component was thoughtful and locally sourced, with no less than seven Minnesota farms coming together to provide ingredients for the sandwich. Farmer's Union does it again!
+
+### Best Drink
+
+Oof, not a good drink year this year. I had more drinks that were memorable for the wrong reasons than I did for good reasons. I did not discover a single new drink that I will be adding to my regular rotation, with lackluster coffee offerings from Brim and Java Jive falling by the wayside, along with a couple of sad lemonades from Brim and Nordic Waffles. The Mini Donut Beer from Ball Park was iconic as ever, as was the Nitro Cold Brew at Farmer's Union (I even went the extra mile and treated myself to the Maple version this year), but they are both past winners and I'd like to go in a different direction. There's one drink that really elevated above the crowd that I haven't recognized in past years, and so the winner of best drink is:
+
+**_Lift Bridge Root Beer at Bridge 'n Barrel_**
+
+I've got to give credit for the discovery of this craft-brewed gem to Henry, our resident root beer afficianado. I'm generally not drinking soda at the Fair, but in a sea of everyday soda, this and its craft-brewed siblings Black Cherry Soda and Ginger Ale stand out as a cut above. And no surprise, given that Lift Bridge is behind the scenes here. A worthy winner!
+
+### Best Food Value
+
+I didn't explore the cheap eats on the Fairgrounds much this year as I have in years' past (shout out to Midway Men's Club!) Had I remembered I would need to award this category I might have tried more, but alas! I did find one great value at the Fair that I had somehow overlooked all of these years, so I'll just toss the award to: 
+
+**_The Free Cold Water at the Culligan Hydration Station_**
+
+Somehow, I never used this before! There are fountains around the Fairgrounds if you know where to look, but getting an extra cold refill of the water bottle here was a nice little treat on hot Fair days. 
+
+### Most Unusual Thing I Ate
+
+It's getting harder and harder to qualify as "unusual" at the Fair these days, especially since I opted not to try the lutefisk sliders. And since I didn't take my traditional solo trip this year, there was less opportunity to try things like the gator bites. 
+
+So in a Fair year where I played the food choices pretty straight, the least familiar thing I tried was:
+
+**_The Nqaij with Hmong Sausage and Chilled Rice Noodles at Union Hmong Kitchen_**
+
+It was fine and the pickled veggies were especially fun, but it was neither particularly unusual nor particularly memorable. Definitely a solid comfort food sort of dish, though! I'd be happy having this for a regular meal.
+
+### Biggest Regret Of Food I Didn't Get To This Year
+
+Every year brings regrets of food left untried. This year, my biggest regret is that I never found time to try the: 
+
+**_Cinnamon Ice Cream Affogato at Hamline Church Dining Hall_** 
+
+As far as I am concerned, ice cream and espresso are a marraige made in heaven, and especially given that I had so much mediocre coffee this year, it's criminal that I didn't give this a shot. It'll haunt me all year, and I'll be hoping they bring it back. 
+### Comeback Kid
+
+I've spent years tempering expectations of this item for Fair newcomers. This year, I got reprimanded for underselling these. With that admonishment, I tried to take a fresh look, and you know what, I WAS underselling these. What really sold it for me were how good they still were two days later. If you haven't guessed by now, the 2023 Comeback Kid is:
+
+**_Sweet Martha's Cookies_**
+
+I think what I discovered is that they're better if they've been out of the oven a few minutes, they hold their shape better and the cooler temp means you can actually taste the cookie more. I'll be visiting at slower times and seeking out the trays that are about half full from now on (too empty and you risk getting a new tray called in for your order!) And, in bucket form, they remain really good a day or two later. We rarely commit to a whole bucket so this may have just been an oversight on my part. Luckily, this year we did and I got to see a better side of Sweet Martha's Cookies! 
+
+### Best New Food That Didn't Win Another Category
+
+In a year with plenty of new foods tried, there is one item that, for me, stands out above the rest for its uniqueness, taste and nearly flawless execution. This year's winner of Best New Food That Didn't Win Another Category is:
+
+**_Bacon-Wrapped Waffle Dog from Nordic Waffles_**
+
+I was --> <-- this close to awarding this Best New Entree, but I think it has slightly less repeatabilty factor than the Maui-Sota Sticky Ribs. Nevertheless, this was AMAZING! It all starts with that crazy good quality Kramarczuk's hot dog. Then, a perfectly executed waffle with crisp edges and just the right amount of darkening. Bacon that somehow did not become an utter soggy mess. The genius of crispy onions! A sauce that complements but not overpowers. The only nitpick is that this should have been a shredded or liquid cheese instead of a slice of cheddar, but I'm giving them a pass because this was so delicious! I waited all these years to finally suffer through the Nordic Waffle line, and it was worth it! This is pretty close to a perfect Fair food for me - decadent, surprising, and you can't eat it without a smile. Well done!
+
+### Most Controversial Item
+
+The item that generated the most debate this year was:
+
+**_Butter Ice Cream with Cinnamon Toast from the Blue Moon Drive-In Diner_** 
+
+I thought it was pretty decent. My two co-reviewers thought it was a huge miss. I didn't think it was all that weird (Butter Pecan ice cream is a thing after all...) but it definitely was butter-forward. Given how dairy-centric the Fair is in general, I'm surprised we don't have even more butter items, but alas, maybe not everyone is quite ready for all this buttery goodness. The jury is hung and there is no clean verdict. But good for Fair blogging to have controvery - that's what keeps you all coming back for more, right?!
+
+## Non-Food Categories
+
+### Best Music 
+
+We attended the Duran Duran concert at the Grandstand this year s o you would think that's a default winner, and it WAS a great show for any 80s fan, made even better by the perfect openers, Chic with Niles Rodgers (Bastille also opened but was outclassed by the other two bands). But we paid for that privilege, and I like to award this to one of the free acts when I can, and this year there's an easy pick. The award goes to:
+
+**_Jamecia Bennett_**
+
+Bennett and her band brought her high-energy blues/jazz/pop/urban vibe to the International Bazaar Stage on the first night and it was the perfect start to a Fair full of concerts. She's a three-time Grammy winner from Minneapolis that I'd never heard of before, which is exactly the sort of serendipitous Fair experience I love! Bonus points for her band made up of students she took in when McNally School of Music collapsed. 
+
+### Best Non-Musical Entertainment
+
+This is a two-horse race - sort of literally! We attended two animal competitions that were incredibly entertaining (perhaps unintentionally). First was the Llama Obstacle Course. Its sedate pace is clinically proven to be safe for those with heart conditions or fear of sudden movements. But oh, the earnestness of the competitors as they shepherded their unwilling beasts through the course! 
+
+Second was the Horse Show, which was featuring "Western Pleasure" events during our visit. The mini horses pulling the mini carts with very not-mini riders is always a good time, but this year the competitors played it straight, with no repeat of the infamous "#28" of 2018 that went rogue and VERY off course while its driver tried his hardest to remain stoic and regal while in his ridiculous outfit.
+
+No, the gem of the Horse Show this year was the Western Walk, wherein there were four horses and riders competing. And of those four, it was abundantly clear to Katie, Chris and myself that one was worlds ahead of the others in style, grace and execution. We confidently declared our winner... and promptly watched it come in absolute dead last. 
+
+Humbling, but highly entertaining! We have absolutely no idea how to tell a great Western Walk from a dreadful one, but we sure had a good laugh about it.
 
 
+### Best Art or Craft
 
+TBD
 
-Ok, enough depressing news. Let's hit the high notes!
+### Best Educational Exhibit
 
-Best Main Entree - Red Hot Sausage from Tejas Express. Ladies and Gentlemen, I realize this is controversial but rest assured the auditing firm of PriceWaterhouseCoopers has verified the authenticity of these results! It's the dish I keep thinking about throughout the Fair. You can tell that Tejas Express is a legit, chef-driven enterprise, because this is a cut above the rest when it comes to flavor composition and quality ingredients. Sure the spiciness might turn some people away, but I appreciate that this wasn't watered down for the Minnesota palette, and challenged me to embrace a really interesting dish! The sausage is of course the star, and it was lightly charred, snappy, flavorful and juicy along with that spicy kick. But the toppings are what really elevated this - summer succotash of corn, black beans, and peppers, pickled onions, whole grain mustard, greens. I'd be super happy ordering this out at an upscale restaurant, and that says a LOT considering the venue! A worthy winner in my book! Honorable Mention: Jammin' Brisket Grilled Cheese at RC's BBQ. Interesting BBQ is hard to find at the Fair (yes, that's my snobbery from having lived in the South for a decade+ showing). RC's manages it with a great mix of flavors and textures - sweet, spicy, cheesy, crispy, smoky, rich - in this sandwich.  
+I'm going to go liberal with our definition of "educational" and go with:
 
-Best Snack - Brim's Grilled Sota Sandwich. My definition of snack may differ from yours, but PB&J is squarely in snack territory for me, and this was a PB&J all grown up (and gluten-free, as an added bonus!) Irish soda bread, homemade nut butter ground onsite, and chunky blueberry jam from local farms, all grilled nice and toasty! You just feel good eating it. Plus, Brim is a refreshing burst onto the historically grim North End food scene. Honorable mentions: Kentikka Fried Chicken from Hot Indian Foods. Loved these little chicken tikka sliders with crunchy slaw. Corn Roast. The roasted corn had a strong year. I learned that I don't like it well-done! 
+**_The Sweet and Selfie Experience_** 
 
-Best Dessert - Snow Cap Mini Waffle Sundae from Hamline Church Dining Hall. Sometimes simpler really is better. Each ingredient brought something essential to this, from the waffle to the real maple syrup to the cream cheese Izzy scoop and cherry on top. The fact that it comes from a church dining hall, one of the foundational bedrocks of the traditional Fair, doesn't hurt either. It tasted like summer ought to taste, and that's what the Fair is all about! Honorable Mentions: Strong year (rare) for desserts this year! The Sundae at Custard's Last Stand took us by surprise. I don't give the booths under the grandstand ramp much attention, but this proved that there might be treasures to be found under there (I'm lookin' at you, Juanita's Fajitas!). Another pleasant surprise was the Warm Cheesecake Tart at LuLu's Public House. Who wants warm cheesecake at the Fair? Apparently I do!
+I learned that it can take several weeks to make a Jawbreaker, so see, it IS educational. Seriously, it's nice that even in something called the "Selfie Experience" there were museum-quality exhibits to browse. I should have expected nothing less from the fine folks at the Fair, always mixing fun and learning!
 
-Best Breakfast - Blue Barn's French Toast Bites. Back-to-back category winner! The French Toast Bites fend off all the many newcomers to take the prize again. I still don't understand how they're turning out perfectly executed, fluffy French toast with the volume they're doing and those lines they're trying to serve, but they are! Honorable Mentions: Blue Barn's Breakfast Potato Skin was yummy - scrambled eggs, beef chislic, and bearnaise sauce on a potato shouldn't work as well as it did. Blue Barn continues their breakfast dominance. I will look deep for Blue Barn breakfast alternatives next year.
+### Best Non-Food Value
 
-Best Drink - Kirby Pucker #34 Arnie Palmer at Ball Park Cafe. So, Kirby Pucker is a long line of beers from Eastlake Craft Brewery that go through a second fermentation to make an American sour. #34 was their special brew from the 2018 Fair, which is a sour saison brewed with strawberry and rhubarb. This year, they used that as a base, and added tea, lemon zest, and lemon juice to imitate an Arnie Palmer. I don't know much about the chemistry of beer making, but I'm pretty good at beer tasting and this one was exactly what I wanted alongside a spicy dish at the Fair while waiting out a rain delay. 
+I don't really even know what this place was called, but something like: 
 
-Best Food Value - All-You-Can-Drink Milk. Even though the price doubled to $2 in recent years, this stand is still a bargain, especially when visiting with Henry! He downed 5 cups of milk on one of our visits. At 40 cents a pop, that's a hands-down winner. Honorable Mentions: Warm Cheesecake Tart at LuLu's Public House. I thought $6 for a well-executed, decently-sized cheesecake with a legit crust at the Fair was a very fair (see what I did there?) price. Classic scone at French Meadow. Cinnamon Scone with Cream Cheese Topping at French Meadow. This comes in at $4.50 with the coupon from the book. For next year, I spotted a slice of pizza for $2.50 today, can it possibly be good?
+**_VIP Sports_**
 
-Weirdest Thing I Ate - Hot Indian Food's Bhel Puri. It's basically puffed rice and chutney, and that is not a description that makes me drool. I can't even tell you why I liked this snack, but I kept spooning it up! It had so many flavors, it felt like each bite was something different. Plus, bonus points for bringing something so completely different to the Fair. 
-
-Biggest Regret Of Food I Didn't Get To This Year - I actually did pretty good at getting to most everything I really wanted to get to this year. There were a few new foods I didn't make it to, most especially the Carnitas Taco Cone at San Felipe Tacos. I passed by twice and both times the line was ridiculous. Anyone get it? How was it? Also, I had a morbid fascination with the Deep-Fried Dilly Dog, because it shouldn't be allowed to exist, but I probably would have liked it (pickle stuffed with a bratwurst and then deep fried). And one of these years I will try a Nordic Waffle - they also have line issues. Finally, I love to support Sara's Tipsy Pies because of her Down syndrome connection, and just couldn't make it there this year. 
-
-Comeback Kid (formerly called Best Rediscovered Classic Food) - And the winner is.... Big Fat Bacon! They moved from a cart into a permanent building a couple years back and I kinda forgot about them. I happened to be walking past on opening day with Henry, and thought "Henry loves bacon. I bet he'll like this!" I was so, so right. I'm actually drooling right now, writing about the caramelized, crispy-yet-fatty-yet-meaty, salty goodness. ITS. SO. GOOD! AND...AND... I just learned today that our friends are friends with the Big Fat Bacon owners! My Kevin Bacon score to Big Fat Bacon is only 2!! I'm hoping for an introduction so I can reduce that to 1. ð I won't ever forget about you again, BFB. 
-
-Best New Food (that didn't win another category) - Turkish Pizza at Blue Moon Drive-In Theater. Some folks thought this was mediocre but I really enjoyed it. The beef was really nicely seasoned, and there were a lot of fresh veggies and great sauce on it, too. The naan was soft and pillowy, and that's maybe the one drawback of this... it should be rolled up rather then billed a pizza. At $9, this was a massive amount of food, a full meal with a lot of fresh ingredients. If you're on a budget this could keep you satisfied for a long time and you could do a lot worse.
-
-Non-Food Categories
------------------
-
-Best Music - The 34th Airborne Band doing Led Zeppelin covers in dress uniform at 10am on Military Appreciation Day. As one vet joyfully yelled, "Rock and Roll!" Yes, sir, indeed. Honorable Mention: The Americana Duet competition on the Schell's Stage in the West End. The perfect mellow backdrop to our date afternoon at the Fair!
-
-Best Non-Musical Entertainment - The Chipper Experience. This magic and comedy show on the Family Stage in Baldwin Park had us all cracking up, kids and adults alike. Honorable Mention: 3rd Lair SkatePark. Some seriously talented kids in that show, and they all seemed to genuinely care for each other, the older kids cheering for and helping the younger kids a lot. Henry spent hours watching! 
-
-Best Art or Craft - I'm giving this to the seed art as a whole. It was the best year yet for seed art! If I had to pick just one, it would be the piece that was in protest of the current administration's immigration policy as expressed through a Dr. Seuss' Green Eggs and Ham parody using seeds as a medium. That's some pretty clever stuff!
-
-Best Educational Exhibit - The National Air Traffic Controllers Association exhibit. I loved all the hands-on activities they had, and I totally geeked out with them. I really liked getting to try the actual air traffic controller training systems! Honorable Mention: The cattle cutting competition, because I learned a lot about how managing cow herds works and how much skill and talent and hard work it takes to train a horse to work that way. 
-
-Best Non-Food Value - Home Depot's Kid's Craft. Henry enjoyed putting together the wooden sailboat, and I thought a free wooden children's toy that you build yourself is a step above a lot of the Fair freebies. 
+They had a tent just south of the Minnesota Wild area up in the northern part of the Fair. They were highlighting their sports memorabilia, but in the back they had a huge collection of '47 brand hats from teams all over the country. I picked up a nice Eagles trucker hat for $15 and a Vikings tie die tee shirt for Henry also for $15 which he loved so much he wore to the first day of school. Score!
  
-Most Minnesotan Experience - I know 4-H is not an exclusive Minnesota thing, but I just really enjoyed seeing the kids from all over the state do their musical performance on the 4-H building stage. They were so eager and earnest and into it... it just felt so midwestern and wholesome! 
+### Most Minnesotan Experience
 
-Biggest Regret of Activity I Didn't Get to Do (New Category) - I'm always amazed that as much time as I have spent at the Fair, I still have so much more to do! This go-round I spent almost no time in the Agriculture Building. So many things there I missed: the vegetable contests, the beer flights, the educational displays, the honey bees... next year!! Honorable Mentions: Didn't set foot in Fine Arts or the Dairy Buildings (butter sculptures!) this year, oops. Also, I just noticed for the first time this year that WCCO has some sort of theater with a 15-minute movie in it? Need to check that out! Didn't go into either U of M pavillion. Still have never seen any of the Minnesota Talent Show performances. The list goes on and on and on.....
+I'm giving this to:
 
-Grand Prize - Best Fair Experience! And the Grand Prize for the 2019 Minnesota State Fair goes to... Henry Fabrizio! This is the year where I feel like Henry fully embraced and developed his love for the Fair. From the most visits he's ever made in one year (3!) to the longest day he's ever had at the Fair (10 hours!), he really dove into the Fair more than any previous year. His enthusiasm for the things he loves at the Fair is infectious. This was also the first year we did the Fair without using a stroller, and he handled it like a champ. It's so fun to see the Fair through his eyes (even though he has a strange fascination for animal poop!) and I'm really looking forward to seeing how his interests change as he grows up going to the Fair each year! Enjoy this win, Henry, you earned it!
+**_The Minnesota State Amateur Talent Contest_**
 
-Well folks, 2019 is in the books. Thanks for following along with me on our Fair adventures. What categories did I miss, suggest them and I will add them next year! Also, I'm already planning for next year and I am also thinking about "theme days" I can do, like only eating a certain kind of food or doing certain activities, so I can really go deep on some categories. Send your ideas my way.
+Somehow we've never attended this before. I really appreicated how the crowd packed a very large venue in the midst of all the Fair food, activities and entertainment to watch a bunch of acts that they have never heard of put themselves out there on stage for all to see, politely paying attention and applauding and cheering throughout no matter the level of talent. I also appreciated that we are a state full of talented people! We saw many good singers, dancers, dance troupes and others of all ages, following their passion and having a great time at the Fair.
 
-Thanks everyone!
+### Biggest Regret of Activity I Didn't Get to Do 
+
+TBD
+
+## Grand Prize for Best Fair Experience 
+
+
 
