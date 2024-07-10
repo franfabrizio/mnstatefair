@@ -6,7 +6,9 @@ categories: '2024'
 image: 'assets/2023-08-24-2023Visit1/2023-day-1-41.jpg'
 ---
 
-Welcome to one of the happiest days of the Fair-lover's year - the [official new foods list](https://www.mnstatefair.org/new-this-year/food/) (or the easier-to-navigate [PDF version](https://assets.mnstatefair.org/pdf/24-new-food.pdf)) has been released! 33 new items grace the list this year, and I'm here to provide a first-pass hot take. Plus they announced 6 new food vendors, and I've got thoughts on them as well.
+Welcome to one of the happiest days of the Fair-lover's year - the [official new foods list](https://www.mnstatefair.org/new-this-year/food/) has been released! Here are my thoughts.
+
+33 new items grace the list this year -- here's the easier-to-navigate [PDF version](https://assets.mnstatefair.org/pdf/24-new-food.pdf) -- and I'm here to provide a first-pass hot take. Plus they announced 6 new food vendors, and I've got thoughts on them as well.
 
 I've ranked and tiered each new item into the list below along with my commentary. Check out the web site or PDF for the full item descriptions.
 
