@@ -3,7 +3,7 @@ layout: post
 date: 2024-07-09
 title: "New Foods Announced - Here are my Hot Takes!"
 categories: '2024'
-image: 'assets/2023-08-24-2023Visit1/2023-day-1-41.jpg'
+image: 'assets/2024-07-09/new-foods-banner.png'
 ---
 
 The new foods have been announced and I have opinions!
