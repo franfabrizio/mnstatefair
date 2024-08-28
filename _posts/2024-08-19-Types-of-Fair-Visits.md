@@ -4,6 +4,7 @@ date: 2024-08-19
 title: "Types of Fair Visits"
 categories: '2024'
 image: 'assets/2024-08-05/beertable.jpg'
+published: false
 ---
 
 Around this time of year I start to get the questions from friends and colleagues - "What should I do at the Fair this year?" My first response is always a question back at them: "What kind of Fair visit are you looking for?" There are so many ways to do the Fair, and it helps to have a general framework for what you're after. As Katie likes to say, you wouldn't show up to Disney World on a whim and just see where the day takes you! The Fair also requires some advance thought to maximize your chances of a good time.
