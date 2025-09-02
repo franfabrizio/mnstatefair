@@ -1,0 +1,45 @@
+{% assign src_mp4   = include.src_mp4  %}
+{% assign src_webm  = include.src_webm %}
+{% assign poster    = include.poster   %}
+{% assign ratio     = include.ratio    | default: "16 / 9" %}
+{% assign maxwidth  = include.maxwidth | default: "900px" %}
+
+<style>
+  /* Scoped, click-safe video wrapper */
+  .video-box {
+    margin: 1rem auto;
+    max-width: {{ maxwidth }};
+    isolation: isolate;          /* new stacking context so outside overlays can't sit on top */
+  }
+  .video-box video {
+    display: block;
+    width: 100%;
+    height: auto;
+    aspect-ratio: {{ ratio }};
+    position: relative;
+    z-index: 1;
+    pointer-events: auto;
+  }
+  /* Kill common theme overlays only inside this component */
+  .video-box::before,
+  .video-box::after,
+  .video-box a::before,
+  .video-box a::after {
+    display: none !important;
+    content: none !important;
+  }
+</style>
+
+<div class="video-box">
+  <video
+    controls
+    preload="metadata"
+    {% if poster %}poster="{{ poster }}"{% endif %}
+    playsinline
+  >
+    {% if src_webm %}<source src="{{ src_webm }}" type="video/webm">{% endif %}
+    <source src="{{ src_mp4 }}" type="video/mp4">
+    Sorry, your browser doesn't support HTML5 video.
+    <a href="{{ src_mp4 }}">Download the file instead.</a>
+  </video>
+</div>
